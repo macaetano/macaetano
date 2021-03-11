@@ -1,4 +1,4 @@
-## Hey there 👋, welcome to my cool github account while you're here checkout some of work
+## Hey there 👋, welcome to my github account while you're here checkout some of work
 
 ### Let's chat, reach me out 😄
 
